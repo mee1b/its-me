@@ -1,0 +1,1 @@
+**I am always openly happy, always smiling and inclined to be positive.**
